@@ -17,7 +17,7 @@
 
 - 📫 How to reach me **kunchala.nandini21@gmail.com**
 
-- ⚡ Fun fact **i enjoy problem solving and continuously improving my skills**
+- ⚡ Fun fact **I enjoy problem solving and continuously improving my skills**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
