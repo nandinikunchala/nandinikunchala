@@ -15,7 +15,7 @@
 
 - 💬 Ask me about **Python basics, problem solving**
 
-- 📫 How to reach me **kunchalanandini21@gmail.com**
+- 📫 How to reach me **kunchala.nandini21@gmail.com**
 
 - ⚡ Fun fact **i enjoy problem solving and continuously improving my skills**
 
